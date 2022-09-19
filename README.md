@@ -1,6 +1,4 @@
-Mamata
-Mangooooo
-for loop
+Kwun Tong
 Mo
 Mam
 Man]
